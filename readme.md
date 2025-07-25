@@ -1,0 +1,3 @@
+Visión general creada por IA Un texto es una unidad de comunicación, ya sea oral o escrita, que se compone de una
+serie de signos (como letras, palabras, frases) organizados de manera que transmitan un mensaje con sentido completo.
+Los textos buscan informar, persuadir, entretener o cumplir diversas funciones comunicativas. Pueden variar en longitud y complejidad, desde una simple oración hasta un libro completo. 
